@@ -22,8 +22,13 @@
 <p align="center"><a target="_blank"><img src="https://cdn.discordapp.com/emojis/1142910246478696619.webp?size=40&quality=lossless" title="sharkthing"></a><p align="center">
 <p align="center"><a target="_blank"><img src="https://cdn.discordapp.com/emojis/1115007774447902831.webp?size=40&quality=lossless" title="xenogender"></a><p align="center">
 <p align="center"><a target="_blank"><img src="https://64.media.tumblr.com/91fd23be1fde766d7ba5cdc3dc23f2c9/56ad9b351f4192e7-47/s75x75_c1/7c5d3638d8c84a106ae6bd2bdcafc86cb1ca8784.pnj" title="hyperverbal"></a><p align="center">
+<p align="center"><a target="_blank"><img src="https://64.media.tumblr.com/048d62f3531749ab53f874c2a06d843a/7f018a0b5994707e-13/s75x75_c1/d63f8adb1e825ce9a51c6cd9a8e5c56add338a09.pnj" title="autistic"></a><p align="center">
+<p align="center"><a target="_blank"><img src="https://64.media.tumblr.com/a9fbb8a4291ee0c5384c8fc9692e88ce/324848305820d003-d4/s75x75_c1/5b75a46f0daf6fefc7f58bc0fc776944d4ac91e0.pnj" title="toygender"></a><p align="center">
+<p align="center"><a target="_blank"><img src="https://64.media.tumblr.com/4dbd7bafa89e398aee5fa4d4a731f451/e40e67adfd68d245-ce/s75x75_c1/26c2bec15cab1ef924923434485a13cf19a47a11.pnj" title="agere"></a><p align="center">
+<p align="center"><a target="_blank"><img src="https://64.media.tumblr.com/2f988fdf2c8d6f8f8b853ba62ac9b115/e40e67adfd68d245-90/s75x75_c1/d3f32ce4359528f7ec540ac85fdc6e1996ef1e52.pnj" title="petre"></a><p align="center">
 <p align="center"><a target="_blank"><img src="" title=""></a><p align="center">
 <p align="center"><a target="_blank"><img src="" title=""></a><p align="center">
+
 
 
 
@@ -45,6 +50,12 @@
 <p align="center"> Image credit in order from top to botom. <p align="center">
 
 <p align="center"> Me and Dwight cheek squish : https://www.pinterest.com/pin/578571883422021856/ <p align="center">
+
+<p align="center"> Pride flags : https://rentry.co/ukulele <p align="center">
+
+<p align="center"> Hyperverbal flag : https://rentry.co/vys <p align="center">
+
+<p align="center"> Agere/petre and autism/toygender) flags : https://rentry.co/winslowpixels <p align="center">
 
 <p align="center"> Everything else / borders & dividers : https://rentry.co/borderdividers <p align="center">
 
