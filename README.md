@@ -13,7 +13,7 @@
 
 <p align="center"> Please don't copy or inspo. <p align="center">
 
-<p align="center"> C + H friendly, when I'm not saitting with my friends. If I have DNI in my name, please don't interact. Crowding irritates me when it's not done by a friend of mine, so it'd be nice if it could be avoided. <p align="center">
+<p align="center"> C + H friendly, when I'm not sitting with my friends. If I have DNI in my name, please don't interact. Crowding irritates me when it's not done by a friend of mine, so it'd be nice if it could be avoided. <p align="center">
 
 <p align="center"> Fictional adult, real life minor. Under twelve or over eighteen do not interact unless I do. Friends are exceptions, please interact if I know you. :] <p align="center">
 
