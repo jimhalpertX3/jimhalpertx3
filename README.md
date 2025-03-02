@@ -6,8 +6,26 @@
   <img src="https://komarev.com/ghpvc/?username=jimhalpertx3-username&color=79B7D3&style=plastic&label=visitors+of+my+office+:&abreviated=true">
 </p>
 
-<p align="center"><a target="_blank"><img src="https://64.media.tumblr.com/c023893f8e51da7c651da9befb28a09d/324848305820d003-2a/s75x75_c1/5a2f0dbcc16134645eabb8d864722b415e180a8d.pnj
-"></a><p align="center">
+<p align="center"><a target="_blank"><img src="https://cdn.discordapp.com/emojis/1114027330348781589.webp?size=40&quality=lossless" title="aceflux"></a><p align="center"> 
+<p align="center"><a target="_blank"><img src="https://cdn.discordapp.com/emojis/1114331514180743179.webp?size=40&quality=lossless" title="bigender"></a><p align="center">
+<p align="center"><a target="_blank"><img src="https://cdn.discordapp.com/emojis/1114028029119840317.webp?size=40&quality=lossless" title="bisexual"></a><p align="center">
+<p align="center"><a target="_blank"><img src="https://cdn.discordapp.com/emojis/1114028604741914644.webp?size=40&quality=lossless" title="demiboy"></a><p align="center">
+<p align="center"><a target="_blank"><img src="https://cdn.discordapp.com/emojis/1114028328052076665.webp?size=40&quality=lossless" title="demiromantic"></a><p align="center">
+<p align="center"><a target="_blank"><img src="https://cdn.discordapp.com/emojis/1114027886849052712.webp?size=40&quality=lossless" title="mascnonbinary"></a><p align="center">
+<p align="center"><a target="_blank"><img src="https://cdn.discordapp.com/emojis/1114020065340305428.webp?size=40&quality=lossless" title="transmasc"></a><p align="center">
+<p align="center"><a target="_blank"><img src="https://cdn.discordapp.com/emojis/1115014037286174741.webp?size=40&quality=lossless" title="ambiamorous"></a><p align="center">
+<p align="center"><a target="_blank"><img src="https://cdn.discordapp.com/emojis/1120018374173397052.webp?size=40&quality=lossless" title="sillygender"></a><p align="center">
+<p align="center"><a target="_blank"><img src="https://cdn.discordapp.com/emojis/1124763781248069774.webp?size=40&quality=lossless" title="smilemasc"></a><p align="center">
+<p align="center"><a target="_blank"><img src="https://cdn.discordapp.com/emojis/1126265817756090512.webp?size=40&quality=lossless" title="sun transmasc"></a><p align="center">
+<p align="center"><a target="_blank"><img src="https://cdn.discordapp.com/emojis/1121866562681446440.webp?size=40&quality=lossless" title="afab"></a><p align="center">
+<p align="center"><a target="_blank"><img src="https://cdn.discordapp.com/emojis/1119851788967870556.webp?size=40&quality=lossless" title="pinktransmasc"></a><p align="center">
+<p align="center"><a target="_blank"><img src="https://cdn.discordapp.com/emojis/1142910246478696619.webp?size=40&quality=lossless" title="sharkthing"></a><p align="center">
+<p align="center"><a target="_blank"><img src="https://cdn.discordapp.com/emojis/1115007774447902831.webp?size=40&quality=lossless" title="xenogender"></a><p align="center">
+<p align="center"><a target="_blank"><img src="https://64.media.tumblr.com/91fd23be1fde766d7ba5cdc3dc23f2c9/56ad9b351f4192e7-47/s75x75_c1/7c5d3638d8c84a106ae6bd2bdcafc86cb1ca8784.pnj" title="hyperverbal"></a><p align="center">
+<p align="center"><a target="_blank"><img src="" title=""></a><p align="center">
+<p align="center"><a target="_blank"><img src="" title=""></a><p align="center">
+
+
 
 
 <p align="center"> Please don't copy or inspo. <p align="center">
