@@ -17,7 +17,7 @@
 
 <p align="center"> Fictional adult, real life minor. Under twelve or over eighteen do not interact unless I do. Friends are exceptions, please interact if I know you. :] <p align="center">
 
-<p align="center"> Call me Jim, Jimmy, Jimbo, James, whetever. Greenbean is alright too, but friends can call me more offensive things, like slurs or swears. Masculine terms are my favs when I have a skin with this Github linked, but female and gender-neutral terms are also okay! He / prankster / flirt / joke / 📎 / 💼 pronouns are my favorite, though I'm pretty new to all these online termonology, Dwight is teaching me. ;P <p align="center">
+<p align="center"> Call me Jim, Jimmy, Jimbo, James, whatever. Greenbean is alright too, but friends can call me more offensive things, like slurs or swears. Masculine terms are my favs when I have a skin with this Github linked, but female and gender-neutral terms are also okay! He / prankster / flirt / joke / 📎 / 💼 pronouns are my favorite, though I'm pretty new to all these online terminologies, Dwight is teaching me. ;P <p align="center">
 
 <p align="center"> Game join date = January 22nd, 2024. <p align="center">
 
