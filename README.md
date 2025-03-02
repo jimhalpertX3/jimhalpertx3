@@ -33,9 +33,9 @@
 
 <p align="center"> Hyperverbal flag : https://rentry.co/vys <p align="center">
 
-<p align="center"> Agere/petre and autism/toygender) flags : https://rentry.co/winslowpixels <p align="center">
+<p align="center"> Agere/petre and autism/toygender flags : https://rentry.co/winslowpixels <p align="center">
 
-<p align="center"> Everything else / borders & dividers : https://rentry.co/borderdividers <p align="center">
+<p align="center"> Everything else/borders & dividers : https://rentry.co/borderdividers <p align="center">
 
 <p align="center"> Bye bye, watch for the prank on your way out! ;] <p align="center">
 
